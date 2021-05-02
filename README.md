@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hi I AM MOHAMMED INSAF P
+I AM CURRENTLY A BTECH ELECTRONICS AND COMMUNICATION STUDENT.
 
 <!--
 **mohammedinsafp/mohammedinsafp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
